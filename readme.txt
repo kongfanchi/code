@@ -7,3 +7,5 @@ i love zhangxiaoxing
 create a new branch is quick and simple.
 
 
+
+有人爱，有所期待，生活总是幸福的
